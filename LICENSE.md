@@ -1,4 +1,4 @@
-
+Enhance your Private Internet Access (PIA) experience with Private Internet Access (PIA) automatic Plugin: P2P-support & high-speed-servers, the #1 plugin. Includes P2P-support
 
 
 
